@@ -1,2 +1,2 @@
 # Hayrunnisa
-Yedditepe Üniversitesi 
+Yeditepe Üniversitesi 
